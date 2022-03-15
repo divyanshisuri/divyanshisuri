@@ -71,3 +71,6 @@ ii. We can often help others by sharing our devices or possibly financing certai
 Is paper or red tape blocking digital empowerment? Are there such barriers at Del Norte? Elsewhere?
 
 iii. Yes! Definitely. There are a lot of set rules that make it difficult for there to be fair allocation of devices, and so not everybody is empowered. At DNHS, there are many students who cannot get a device of their own, and must use a chromebook in school everyday provided by the school. This exists all over the world, in underprivileged and rural areas, and strong adhesion to such rules.
+
+
+
